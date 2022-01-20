@@ -20,7 +20,7 @@
   Discord Server
 </h1>
 <p align="center">
-  https://discord.gg/ybHPrde
+  https://discord.gg/9bnWtm8CYH
 </p>
 
 <h1 align="center">
